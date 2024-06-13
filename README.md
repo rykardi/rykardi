@@ -7,7 +7,7 @@ she/he 4teen enfp :3 i am not a chronic ponytowner i just like making silly poni
 
  i'm vry friendly feel free to add me on discord (deadplat) hihi!! <img src="https://wilardo.crd.co/assets/images/gallery29/b9f1d4eb.gif?v=7415df4c">
 
-☆～（ゝ。∂）‎ ‎ ‎ ‎ ‎ ‎ [my pronouns page](https://en.pronouns.page/lesbianvittorino)‎ ‎ ‎  <img src="https://wilardo.crd.co/assets/images/gallery28/16109008.gif?v=7415df4c">‎ ‎ ‎  [my carrd](https://elehitch.crd.co)
+☆～（ゝ。∂）‎ ‎ ‎ ‎ ‎ ‎ [my pronouns page](https://en.pronouns.page/@lesbianvittorino)‎ ‎ ‎  <img src="https://wilardo.crd.co/assets/images/gallery28/16109008.gif?v=7415df4c">‎ ‎ ‎  [my carrd](https://elehitch.crd.co)
 
  <img src="https://wilardo.crd.co/assets/images/gallery16/25e00977.png?v=7415df4c"> <img src="https://wilardo.crd.co/assets/images/gallery11/bcfdbc37.png?v=7415df4c"> <img src="https://wilardo.crd.co/assets/images/gallery13/e3101c12.gif?v=7415df4c"> <img src="https://supplies.ju.mp/assets/images/gallery09/fc6104f9.png?v=6a50b904"> <img src="https://64.media.tumblr.com/932577227e5dcc9a95259b8b987b992a/5c6d0503478f53e1-b3/s100x200/01f93029a46559b84407fd3fec303e58667cc33c.png"> <img src="https://64.media.tumblr.com/143313bd32d2771ff1f5f5fabe6019a3/34877d2af2d0b65c-35/s100x200/53738608c58e1f9987286d2f8a84e20957249e19.png">
  
