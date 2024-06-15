@@ -3,9 +3,11 @@
 
 she/he 4teen enfp :3 i am not a chronic ponytowner i just like making silly ponies  ☆
 
- <img src="https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=7212058b">   8:11 deadplate piano cannibalism enthusiast
+ <img src="https://pixels.crd.co/assets/images/gallery34/7ff6f67d.gif?v=7212058b">   8:11 deadplate piano cannibalism music enthusiast
 
  i'm vry friendly feel free to add me on discord (deadplat) hihi!! <img src="https://wilardo.crd.co/assets/images/gallery29/b9f1d4eb.gif?v=7415df4c">
+
+ <img src="https://wilardo.crd.co/assets/images/gallery29/9cae28b3.gif?v=7415df4c">  uuh i'm offtab if i'm by myself mostly so i'm not ignoring you on purpose..!!
 
 ☆～（ゝ。∂）‎ ‎ ‎ ‎ ‎ ‎ [my pronouns page](https://en.pronouns.page/@lesbianvittorino)‎ ‎ ‎  <img src="https://wilardo.crd.co/assets/images/gallery28/16109008.gif?v=7415df4c">‎ ‎ ‎  [my carrd](https://elehitch.crd.co)
 
